@@ -12,7 +12,7 @@ earth is getting too boring.
 
 let me stay here forever
 
-thankyo
+thankyou
 
 
- hubbers and creators.
+hubbers and creators.
